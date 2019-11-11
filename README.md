@@ -1,6 +1,6 @@
 # Untitled
 
-Check da compilare per identificare i dati e la documentazione più significativa per la richiesta di finanziamento. Da inviare a [amministrazione@studiogb.org](mailto:progettazione@studiogb.org)
+Cheare per identificare i dati e la documentazione più significativa per la richiesta di finanziamento. Da inviare a [amministrazione@studiogb.org](mailto:progettazione@studiogb.org)
 
 **Si ricorda che successivamente sarà richiesta altra documentazione per la finalizzazione e presentazione del progetto. Nel caso di imprese collegate o associate la documentazione amministrativa sarà complessa in quanto coinvolgerà anche le imprese a monte e a valle dell’impresa stessa**
 
